@@ -1,1 +1,1 @@
-# craftingemails.github.io
+# Craftingemails.github.io
